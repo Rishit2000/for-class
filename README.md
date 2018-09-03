@@ -30,3 +30,21 @@ talkingtom~soumya
 basketball~soumya
 tabletennis~soumya
 
+DOTA - Rishit
+CSGO - Rishit
+Sherlock - Rishit
+Table Tennis - Rishit
+FIFA - Rishit
+F.R.I.E.N.D.S - Rishit
+Game of Thrones - Rishit
+Cricket - Rishit
+Call of Duty - Rishit
+Far Cry 5 - Rishit
+Watch Dogs 2 - Rishit
+Sacred Games - Rishit
+Breaking Bad - Rishit
+Bioshock Infinite - Rishit
+Battlefield Hardline - Rishit
+GTA 5 - Rishit
+Sleeping Dogs - Rishit
+Narcos - Rishit
